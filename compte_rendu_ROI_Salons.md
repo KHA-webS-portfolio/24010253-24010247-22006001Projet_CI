@@ -14,7 +14,7 @@
 *(Hannover Messe, Canton Fair…)*
 
 
-|**Étudiantes**|BOUNIT Khadija (24010247)  •  IDHSAINE Khadija (24010253)|
+|**Étudiantes**|BOUNIT Khadija (24010247)  •  IDHSAINE Khadija (24010253) • Douae EL FATTAL (22006001)|
 | :- | :- |
 
 |**Filière**|S8 – Commerce International (CI)|
